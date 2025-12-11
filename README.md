@@ -1,0 +1,1 @@
+# Template-to-Galaxy-Pocket-2-SM-G110B
